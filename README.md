@@ -1,13 +1,10 @@
 # FINFUN-Recommendations 
-
-# Book Recommendations
-
 ## Books that introduce kids to problem solving 
 
-###The Lemonade War" by Jacqueline Davies
+1. The Lemonade War" by Jacqueline Davies
     
     
-###The Kid Who Ran for President" by Dan Gutman
+2. The Kid Who Ran for President" by Dan Gutman
     
     
-###Lemonade in Winter: A Book About Two Kids Counting Money" by Emily Jenkins
+3. Lemonade in Winter: A Book About Two Kids Counting Money" by Emily Jenkins
