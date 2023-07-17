@@ -15,10 +15,8 @@
 
 ["Alexander, Who Used to Be Rich Last Sunday" by Judith Viorst](https://www.amazon.in/Alexander-Used-Rich-Last-Sunday/dp/0689711999/ref=sr_1_1?crid=25J8QVFTVIH1P&amp;keywords=%2522Alexander%252C+Who+Used+to+Be+Rich+Last+Sunday%2522+by+Judith+Viorst&amp;qid=1689576615&amp;sprefix=alexander%252C+who+used+to+be+rich+last+sunday+by+judith+viorst%252Caps%252C327&amp;sr=8-1&_encoding=UTF8&tag=srishmasunku-21&linkCode=ur2&linkId=02177b8bd5071bb2aa49f075de666203&camp=3638&creative=24630) 
 
-Count on Pablo" by Barbara deRubertis 
 [Count on Pablo by Barbara deRubertis](https://www.amazon.in/Count-Pablo-Matters-Barbara-Derubertis/dp/1575650908/ref=sr_1_1?crid=22AIJGHCFC8W&amp;keywords=%2522Count+on+Pablo%2522+by+Barbara+deRubertis&amp;qid=1689576754&amp;sprefix=count+on+pablo+by+barbara+derubertis+%252Caps%252C478&amp;sr=8-1&_encoding=UTF8&tag=srishmasunku-21&linkCode=ur2&linkId=df2de5f4d780db88f3d29d5e2bb2cd79&camp=3638&creative=24630) 
 
-he Kid's Guide to Money: Earning It, Saving It, Spending It, Growing It, Sharing It" by Steven Otfinoski 
 [The Kid's Guide to Money: Earning It, Saving It, Spending It, Growing It, Sharing It" by Steven Otfinoski](https://www.amazon.in/Kids-Guide-Money-Scholastic-Non-Fiction/dp/0590538535/ref=sr_1_1?crid=30RC07HFPRS5W&amp;keywords=The+Kid%2527s+Guide+to+Money%253A+Earning+It%252C+Saving+It%252C+Spending+It%252C+Growing+It%252C+Sharing+It%2522+by+Steven+Otfinoski&amp;qid=1689576847&amp;sprefix=the+kid%2527s+guide+to+money+earning+it%252C+saving+it%252C+spending+it%252C+growing+it%252C+sharing+it+by+steven+otfinoski+%252Caps%252C253&amp;sr=8-1&_encoding=UTF8&tag=srishmasunku-21&linkCode=ur2&linkId=62dc87d0c8788a894dc7c1e90b9960e8&camp=3638&creative=24630)
 
 [A Chair for My Mother" by Vera B. Williams](https://www.amazon.in/Chair-My-Mother-Vera-Williams-ebook/dp/B09B7M8XL4/ref=sr_1_3?crid=293D2EMTIQG0F&amp;keywords=%2522A+Chair+for+My+Mother%2522+by+Vera+B.+Williams&amp;qid=1689576977&amp;sprefix=a+chair+for+my+mother+by+vera+b.+williams%252Caps%252C279&amp;sr=8-3&_encoding=UTF8&tag=srishmasunku-21&linkCode=ur2&linkId=95ab2be149d96308ea030cf093d8f517&camp=3638&creative=24630) 
